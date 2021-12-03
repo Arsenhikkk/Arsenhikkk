@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Arsenhikkk
+- 👀 I’m interested in coding learner.
+- 🌱 I’m currently learning anything that seems interesting to me.
+- 💞️ I’m looking to collaborate on nowhere yet.
